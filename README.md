@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @julianakusters
 - 👀 I’m interested in tecnology
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning how to coding
 - 💞️ I’m looking to collaborate on teams creative
 - 📫 How to reach me juliana.kusters@gmail.com
 
